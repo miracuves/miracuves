@@ -2,7 +2,7 @@
 - 👀 I’m interested in IT Solutions
 - 🌱 I’m currently learning all new technology
 - 💞️ I’m looking to collaborate on Coding
-- 📫 How to reach me - info@miracuves.com / www.miracuves.com
+- 📫 How to reach me - biz@miracuves.com / www.miracuves.com
 
 Miracuves is a privately owned IT Support and IT Services business formed in 2010. Today we’re proud to boast a strong team of IT engineers who thrive on rolling up their sleeves and solving your IT problems and meeting your business needs. We are on a mission to exceed your expectations and form a long-term, mutually beneficial relationship with you.
 
